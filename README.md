@@ -1,0 +1,8 @@
+- Opa eae meu nobre, me chamo Breno.
+- Gosto de livros de terror, jogos de rpg, e de desenhos.
+- Estou no 1 ano do ensino médio.
+- Tenho 16 anos.
+- Não sei mexer com informática, mas infelizmente minha escola  me obriga a fazer isso :P.
+- Assisto Felca e rbiana, então já saiba que eu sou um ser humano desprezível.
+- Sou 50% gay, e sou 50% hétero.
+- Gosto de dar informação desnecessário como você pode ver.
